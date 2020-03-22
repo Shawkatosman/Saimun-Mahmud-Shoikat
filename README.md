@@ -1,0 +1,2 @@
+# Saimun-Mahmud-Shoikat
+I’ve been doing and living SEO for over 10 years now. I help businesses directly with my SEO consulting and have been very successful and bringing great results and ROI on the campaigns I’ve been involved in. I am a great all rounder in all aspects of SEO. I specialise in Technical aspects of SEO. I provide technical SEO audits at all levels. Please contact me to discuss your needs.
